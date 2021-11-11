@@ -1,0 +1,1 @@
+# good_gwas_journals_with_registered_reports
